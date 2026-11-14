@@ -1,6 +1,6 @@
 ## 💫 About Me
 
-Hey, I'm Sabhya aka **ptrshark** (formerly **5h4rrK**)
+Hey, I'm Sabhya (𑒮𑒦𑓂𑒨) aka **ptrshark** (alt **5h4rrK**)
 
 ### Blog
 Typing Randomly => [***ptrshark.github.io***](https://ptrshark.github.io/posts/)
